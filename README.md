@@ -1,12 +1,12 @@
 <img width="920" height="920" alt="IBM SPSS Statistics 27" src="https://github.com/user-attachments/assets/d41205a3-d15c-49c1-a438-e193f42de859" />
 
-Torrent download link :
-
-https://www.shopcom.tn/product/ibm-spss-statistics-27/torrent-download
-
 Download link :
 
 https://www.shopcom.tn/product/ibm-spss-statistics-27/download
+
+Torrent download link :
+
+https://www.shopcom.tn/product/ibm-spss-statistics-27/torrent-download
 
 Purchase link :
 
