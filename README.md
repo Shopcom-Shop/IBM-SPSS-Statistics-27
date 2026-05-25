@@ -14,6 +14,12 @@ https://www.shopcom.tn/product/ibm-spss-statistics-27/
 
 Product Price : 3,852 $
 
+Payment :
+https://www.shopcom.tn/payment
+
+Website :
+https://www.shopcom.tn
+
 Description :
 
 IBM SPSS Statistics 27.0.1 is a powerful statistical software package released in late 2020, serving as a significant update to version 27 . It is designed to help researchers, businesses, and data analysts manage data, perform complex statistical analyses, and generate insightful reports.
